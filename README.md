@@ -1,2 +1,2 @@
 # Pure-clouds-
-If there were no beautiful clouds, this world would be dirty.That is, the clouds The mirror of this world.
+Without the beautiful clouds, this world would have been dirty. In other words, clouds are a mirror of this world.
